@@ -1,1 +1,1 @@
-
+<img src="https://lens.usercontent.google.com/image?vsrid=CITh7Pa1lbLApAEQARgBIhAii2gJ72X29DV-EjAv45YMMoMBIgJ0cCi3AUJ0Ci5sZmUtZHVtbXk6OWUwZWU0YzktMWQxNS00ZDE2LTliMTgtNmFhZGY3NjMxZmYyEkIKQC9ibnMvdHAvYm9yZy90cC9ibnMvbGVucy1mcm9udGVuZC1hcGkvcHJvZC5sZW5zLWZyb250ZW5kLWFwaS8xNjRaBAoCdHA4qOz7kZf9lgNIAFAAYO6X_riE1ZXBY3gAgAEA" alt="รูปภาพจากการค้นหาภาพ"/>![Uploading image.png…]()
